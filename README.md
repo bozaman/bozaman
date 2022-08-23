@@ -11,7 +11,7 @@ these and maybe even other things for a long time .... 😎
 I currently do stuff and other things from my home in Phoenix, Arizona. That's in the Sonoran Desert 🌵 where it often
 gets hot 🥵, usually in the summer which lasts most of the year. It's not as fun to do stuff or other things when it's
 too hot, but you get used to it. Winters are usually pretty nice, though. It doesn't snow here in the winter (usually),
-and we have palm tress. 🌴 So there's that. 👍
+and we have palm trees. 🌴 So there's that. 👍
 
 If you are reading this or otherwise visiting this little corner of the interwebs intentionally you may have some interest
 in my stuff or other things, in which case: welcome! 🎉
